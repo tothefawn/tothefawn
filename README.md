@@ -1,5 +1,4 @@
-work in progres..
-
+![image alt]{https://github.com/tothefawn/tothefawn/blob/db11bad5449af42d1337fee34b3935b2ce4d64e0/20260520_2026_05_20_15_25_55.mov}
 <!--
 **tothefawn/tothefawn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
