@@ -1,2 +1,2 @@
 
-  ![image_alt](https://github.com/tothefawn/tothefawn/blob/01647aede053998cad8e0e35a53d6ab89e02011d/IMG_8342.gif)
+  ![image_alt](https://github.com/tothefawn/tothefawn/blob/046a828b7164839d1455b8cfdc9a4888f0f61d1e/Untitled520_20260702011414.png)
